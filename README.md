@@ -39,6 +39,3 @@ Bachelor of IT in Business Systems – Rosebank College
 🔗 LinkedIn: [linkedin.com/in/katleho-nthunya](https://www.linkedin.com)
 
 ---
-
-### 📂 Folder Suggestions
-Create these folders to organize your content neatly:
